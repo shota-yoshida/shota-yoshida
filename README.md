@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @shota-yoshida
+👋 Hi, I’m @shota-yoshida
 
 https://growfit.co.jp/
 
